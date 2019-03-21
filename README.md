@@ -1,0 +1,2 @@
+# silentstart
+nohope nogain
